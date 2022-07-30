@@ -1,4 +1,4 @@
-Ce script a été full rework par Neyroz__bah#2447 .
+Ce script a Ã©tÃ© full creer par Neyroz__bah#2447 .
 
 
 
