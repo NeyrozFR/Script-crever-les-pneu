@@ -1,4 +1,4 @@
-Ce script a été full creer par Neyroz__bah#2447 .
+Ce script a été creer par Neyroz__bah#2447 .
 
 
 
